@@ -53,4 +53,24 @@ a large bowl, tin foil, poster tack, a toothpick, 1 marshmallow, plastic wrap, a
 2 cups cornflour, 1 cup water, 2 drops food coloring of your choice
 ### how to make it
 1. add the cornflour, water, and food coloring into i big bowl
-1. mix it all together and slap it it should resist you then let it drip through your fingers it shouldn't be resistant
+1. mix it all together and slap it it should resist you 
+1. now role it into a ball and stop it should drip through your fingers
+
+# Salad Dressing
+### here's what you need
+3 Tbsp viniger, 3 Tbsp olive oil
+### how to make it
+1. pour the olive oil and viniger into a jar
+1. mix and add to your salad
+
+# Meringues
+### here's what you need
+1 egg white, 1/4 cup of suger\
+### how to make it
+1. cut baking parchment to fit your baking tray and preheat the oven 225'f
+1. crack your egg and seperate the egg yolk from the egg white and pour the egg white into a bowl
+1. beat the egg white until it becomes a thick foam and makes peaks when you lift it
+1. add your suger to the egg white and mix it in a spoonful at a time
+1. pour a tsp of the mixture onto the parchment until the pan is full while leaving gaps
+1. bake for 45 minutes then turn off the oven and let it sit in the oven for 15 more minutes
+1. then take them out to cool then serve to your friends and family
