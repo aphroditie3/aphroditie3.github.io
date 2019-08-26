@@ -36,3 +36,21 @@ My website has cooking recipes, and fun activities for the young ones
 1. let it cool down to room tempature
 1. add your corn syrup and mix with a fork until you get long strands of fake snot
 1. and enjoy your fake snot to gross out your friends and family
+
+# Cooking in the Sun
+### here's what you need
+a large bowl, tin foil, poster tack, a toothpick, 1 marshmallow, plastic wrap, a pile of stones
+### how to make it
+1. line your bowl with tin foil and press your poster tack into the center of the bowl
+1. put a marshmallow on the end of your toothpick 
+1. press the other end of the toothpick into the poster tack and cover the top with plastic wrap
+1. put the bowl outside in a sunny place and use stones to hold it up in the position of the sun
+1. leave it out there for 15 minutes the marshmallow should start to melt 
+1. if the marshmallow has not begun to melt then wait another 15 minutes and check again and enjoy
+
+# Gloop
+### here,s what you need
+2 cups cornflour, 1 cup water, 2 drops food coloring of your choice
+### how to make it
+1. add the cornflour, water, and food coloring into i big bowl
+1. mix it all together and slap it it should resist you then let it drip through your fingers it shouldn't be resistant
