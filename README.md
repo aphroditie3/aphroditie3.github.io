@@ -8,7 +8,7 @@ My website has cooking recipes, and fun activities for the young ones
 1. pour water into a large pot
 1. add sugar and stir until the sugar stops dissolving
 1. place the pot onto the stove at meadium-high heat
-1. stir so the rest of the sugar dissalves
+1. stir so the rest of the sugar dissolves
 1. remove pot from heat and let it cool
 1. pour the mixture into a plastic contaner
 1. in 10 days the bottom will be covered in rock candy
