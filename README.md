@@ -17,6 +17,8 @@ My website has cooking recipes, and fun activities for the young ones
 1. once there dry dig into your hard earned rock candy
 
 # Clear Slime
+![Image of blue slime](IMG_20190928_144204.jpg)
+you can use regular glue too
 ### here's what you need
 1 bottle clear elmores glue,food coloring (optional), glitter(optional), borax, water
 ### how to make it
