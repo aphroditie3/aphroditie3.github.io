@@ -67,7 +67,7 @@ a large bowl, tin foil, poster tack, a toothpick, 1 marshmallow, plastic wrap, a
 
 # Meringues
 ### here's what you need
-1 egg white, 1/4 cup of suger\
+1 egg white, 1/4 cup of suger
 ### how to make it
 1. cut baking parchment to fit your baking tray and preheat the oven 225'f
 1. crack your egg and seperate the egg yolk from the egg white and pour the egg white into a bowl
@@ -76,3 +76,14 @@ a large bowl, tin foil, poster tack, a toothpick, 1 marshmallow, plastic wrap, a
 1. pour a tsp of the mixture onto the parchment until the pan is full while leaving gaps
 1. bake for 45 minutes then turn off the oven and let it sit in the oven for 15 more minutes
 1. then take them out to cool then serve to your friends and family
+
+# Soap Souffle
+### here's what you need
+1 bar of floating soap, microwave safe plate
+### how to make it
+1. cut soap into fourths
+1. place soap on plate
+1. put into microwave 
+1. cook for 2 minutes or until it stops expanding
+1. let soap cool before touching
+1. place in the shower and enjoy your new soap
